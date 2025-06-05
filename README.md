@@ -40,3 +40,9 @@ En el sector privado se valora la capacidad de adaptación y el talento innovado
 e) Reflexión Personal
 
 me he dado cuenta en esta investigacion que se requiere tener habilidades interpersonales y actitud trabajadora para sobresalir en este entorno. En este entorno de administrador de sistemas se destacan actitudes como el trabajo en equipo, la responsabilidad, la puntualidad y la capacidad para adaptarse a los cambios. En mi punto de vista, considero que mis puntos fuertes son la capacidad para aprender de forma autónoma, la creatividad en la solución de problemas  8si no me lo se me lo invento9 y mi compromiso con la innovación. Pero tambien, reconozco la necesidad de mejorar en aspectos como la gestión de proyectos áreas en las que seguiré formándome para convertirme en un profesional integral.
+
+----
+
+## Conclusión
+
+En conclusión, la elaboración de este trabajo me ha permitido profundizar en el conocimiento del sector de sistamas y en la comprensión de las oportunidades y desafíos que enfrenta este campo profesional. He aprendido la importancia de combinar competencias técnicas con habilidades personales para no me quede nada grande y poder mantenemer en un mercado laboral en constante evolución. Este análisis también me ha ayudado a realizar una autoevaluación, identificando mis fortalezas y áreas de mejora, lo que sin duda me hara un buen profesional en el futuro.
