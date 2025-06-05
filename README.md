@@ -1,6 +1,9 @@
 # FOL
 Nombre:Juan felipe Criollo Valderrama
 ## Documentación
+
+---
+
 Portada
 
 
@@ -27,7 +30,7 @@ Fecha: 30 de Mayo de 2025
 
 
 
-
+----
 
 
 . Introducción
